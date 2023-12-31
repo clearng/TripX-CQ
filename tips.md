@@ -1,0 +1,3 @@
+# tips
+![86a1c2ff35654a516286819b2b109418.png](https://www.z4a.net/images/2023/12/31/86a1c2ff35654a516286819b2b109418.png)
+![3801e10727e4995ac83bb5712a0fee48.png](https://www.z4a.net/images/2023/12/31/3801e10727e4995ac83bb5712a0fee48.png)
