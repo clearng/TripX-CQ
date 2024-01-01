@@ -1,3 +1,5 @@
 # tips
 ![86a1c2ff35654a516286819b2b109418.png](https://www.z4a.net/images/2023/12/31/86a1c2ff35654a516286819b2b109418.png)
-![3801e10727e4995ac83bb5712a0fee48.png](https://www.z4a.net/images/2023/12/31/3801e10727e4995ac83bb5712a0fee48.png)
+![da925329b80d72154d59c72ecb0ea53d.png](https://www.z4a.net/images/2024/01/01/da925329b80d72154d59c72ecb0ea53d.png)
+![3801e10727e4995ac83bb5712a0fee48.png](https://www.z4a.net/images/2023/12/31/3801e10727e4995ac83bb5712a0fee48.png)  
+![9b3dbdb58807fe312418aa0046119363.png](https://www.z4a.net/images/2024/01/01/9b3dbdb58807fe312418aa0046119363.png)
